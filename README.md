@@ -4,3 +4,4 @@ Moderator on the server BuildersRefuge and Admin on BlockMania/NameMC
 https://twitter.com/BuildersRefuge
 https://twitter.com/namemc_com
 
+As for what I do IRL, I'm an Engineering Student, in an Engineering School. (a College, I guess)
